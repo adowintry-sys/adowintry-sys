@@ -28,9 +28,13 @@
 　　　·　☆　　　　°*　　　　*　☄　　　　.　*　　　　•*　·☄　°　　°·
 ✶　　　　　*　*　　··　•　☆°　　　　　　　　　　　　　　　　·　°·　　
 　*　*·✵*　°　　°　　　*°　　　　　　　　
-<img width="800" height="449" alt="kokichi_wallpaper_finalgif" src="https://github.com/user-attachments/assets/6d5839a6-a2c4-4e60-aeca-2f2a348fce11" />
+## $\color{#D44E4E}{\text{⛧°. ⋆༺ Bits of my work ༻⋆. °⛧}}$
+<img width="800" height="449" alt="kokichi_wallpaper_finalgif_cut" src="https://github.com/user-attachments/assets/263b9f18-a9a9-445f-a6ba-77f142b362f0" />
 
-## $\color{#D44E4E}{\text{About me!!}}$
+
+
+## $\color{#C25642}{\text{⛧°. ⋆༺ About me!! ༻⋆. °⛧}}$
+
 <img width="128" height="128" alt="kaito_pfp" src="https://github.com/user-attachments/assets/c62adcc5-afd1-4735-b5b7-0ea8be296504" />
 <img width="128" height="128" alt="kokichi_pfp" src="https://github.com/user-attachments/assets/71be5050-5174-493a-b02a-db7a7be358de" />
 
@@ -38,9 +42,6 @@
 ### $\color{#5462A8}{\text{· Basically a mix of Leon Kuwata, Kaito Momota, and Kiyotaka Ishimaru (from Danganronpa)}}$
 ### $\color{#6256A8}{\text{· Artist and animator}}$
 
-## $\color{#C25642}{\text{FANDOMS!!}}$
+## $\color{#D48B4C}{\text{⛧°. ⋆༺ FANDOMS!! ༻⋆. °⛧}}$
+
 ### $\color{#6256A8}{\text{✧ Danganronpa!}}$
-
-
-## $\color{#D48B4C}{\text{IDK what else to put}}$
-
