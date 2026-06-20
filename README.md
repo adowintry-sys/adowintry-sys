@@ -32,7 +32,6 @@
 <img width="800" height="449" alt="kokichi_wallpaper_finalgif_cut" src="https://github.com/user-attachments/assets/263b9f18-a9a9-445f-a6ba-77f142b362f0" />
 
 
-
 ## $\color{#C25642}{\text{⛧°. ⋆༺ About me!! ༻⋆. °⛧}}$
 
 <img width="128" height="128" alt="kaito_pfp" src="https://github.com/user-attachments/assets/c62adcc5-afd1-4735-b5b7-0ea8be296504" />
