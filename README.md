@@ -1,3 +1,4 @@
+
 <img width="2041" height="568" alt="ytbanner_new_crop" src="https://github.com/user-attachments/assets/ed099abf-e761-41bc-ba90-8844a274e432" />
 
 ## $\color{#7B4BD1}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
@@ -27,6 +28,7 @@
 　　　·　☆　　　　°*　　　　*　☄　　　　.　*　　　　•*　·☄　°　　°·
 ✶　　　　　*　*　　··　•　☆°　　　　　　　　　　　　　　　　·　°·　　
 　*　*·✵*　°　　°　　　*°　　　　　　　　
+<img width="800" height="449" alt="kokichi_wallpaper_finalgif" src="https://github.com/user-attachments/assets/6d5839a6-a2c4-4e60-aeca-2f2a348fce11" />
 
 ## $\color{#D44E4E}{\text{About me!!}}$
 <img width="128" height="128" alt="kaito_pfp" src="https://github.com/user-attachments/assets/c62adcc5-afd1-4735-b5b7-0ea8be296504" />
