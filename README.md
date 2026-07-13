@@ -27,12 +27,9 @@
 　　•°　　°　　*　*　　　*　.✯·　　　　.　　.　　°　　　　　　　✧　
 　　　·　☆　　　　°*　　　　*　☄　　　　.　*　　　　•*　·☄　°　　°·
 ✶　　　　　*　*　　··　•　☆°　　　　　　　　　　　　　　　　·　°·　　
-　*　*·✵*　°　　°　　　*°　　　　　　　　
-## $\color{#D44E4E}{\text{⛧°. ⋆༺ Bits of my work ༻⋆. °⛧}}$
-<img width="800" height="449" alt="kokichi_wallpaper_finalgif_cut" src="https://github.com/user-attachments/assets/263b9f18-a9a9-445f-a6ba-77f142b362f0" />
-
-
-## $\color{#C25642}{\text{⛧°. ⋆༺ About me!! ༻⋆. °⛧}}$
+　*　*·✵*　°　　°　　　*°　　
+ 
+ ## $\color{#D44E4E}{\text{⛧°. ⋆༺ About me!! ༻⋆. °⛧}}$
 
 <img width="128" height="128" alt="kaito_pfp" src="https://github.com/user-attachments/assets/c62adcc5-afd1-4735-b5b7-0ea8be296504" />
 <img width="128" height="128" alt="kokichi_pfp" src="https://github.com/user-attachments/assets/71be5050-5174-493a-b02a-db7a7be358de" />
@@ -40,6 +37,13 @@
 ### $\color{#6256A8}{\text{✧ Win | 17 | Scorpio ఌ︎.˚☾⋆ | ENFP ✧ | he/they usually }}$
 ### $\color{#5462A8}{\text{· Basically a mix of Leon Kuwata, Kaito Momota, and Kiyotaka Ishimaru (from Danganronpa)}}$
 ### $\color{#6256A8}{\text{· Artist and animator}}$
+
+## $\color{#C25642}{\text{⛧°. ⋆༺ COMMISSIONS !! ༻⋆. °⛧}}$
+<img width="1080" height="1440" alt="1" src="https://github.com/user-attachments/assets/189c53bc-c0f4-4284-a25a-56bb999edbeb" />
+<img width="1080" height="1440" alt="2" src="https://github.com/user-attachments/assets/3c797a06-3cec-4988-9101-1f52a78edeed" />
+<img width="1080" height="1440" alt="3" src="https://github.com/user-attachments/assets/27c9416b-12d9-404f-b57c-0576f4f7a194" />
+<img width="1080" height="1440" alt="4" src="https://github.com/user-attachments/assets/f8dd3fcd-0b92-4e0f-a10d-3cb3387f736b" />
+<img width="1080" height="1440" alt="5" src="https://github.com/user-attachments/assets/52893360-4d81-4a2f-833e-bacb2c3eb7f5" />
 
 ## $\color{#D48B4C}{\text{⛧°. ⋆༺ FANDOMS!! ༻⋆. °⛧}}$
 
