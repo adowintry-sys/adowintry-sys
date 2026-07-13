@@ -39,6 +39,6 @@
 <img width="1080" height="1440" alt="4" src="https://github.com/user-attachments/assets/f8dd3fcd-0b92-4e0f-a10d-3cb3387f736b" />
 <img width="1080" height="1440" alt="5" src="https://github.com/user-attachments/assets/52893360-4d81-4a2f-833e-bacb2c3eb7f5" />
 
-## $\color{#D48B4C}{\text{⛧°. ⋆༺ FANDOMS!! ༻⋆. °⛧}}$
+## $\color{#D48B4C}{\text{⛧°. ⋆༺ Placeholder ༻⋆. °⛧}}$
 
-### $\color{#6256A8}{\text{✧ Danganronpa!}}$
+### $\color{#6256A8}{\text{✧ Saving this for a message for a sweet someone... }}$
