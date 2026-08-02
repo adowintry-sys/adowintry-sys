@@ -32,6 +32,23 @@
 ### $\color{#5462A8}{\text{· Basically a mix of Leon Kuwata, Kaito Momota, and Kiyotaka Ishimaru (from Danganronpa)}}$
 ### $\color{#6256A8}{\text{· Artist and animator}}$
 
+## $\color{#D44E4E}{\text{DNI}}$
+■ Supporters/tolerators of incest and pedophilia
+
+■ Enjoyers of ships that include incest, adoptive sibling incest, minor/adult pairings, aged up minor characters shipped with a canon adult, adoptive parent and child incest, etc.
+
+■ Pedophiles
+
+■ People who sexualise, glorify, support, tolerate, and/or fetishise abuse of ANY KIND toward ANY PERSON
+
+■ Racists and other bigots
+
+■ Anti-feminists, misogynists, and misandryists (Pls read abt what feminism actually is before declaring you are against it)
+
+■ People who attack others online for disagreeing on subjective matters
+
+■ Supporters/tolerators/users of Generative AI technology
+
 ## $\color{#C25642}{\text{⛧°. ⋆༺ COMMISSIONS !! ༻⋆. °⛧}}$
 <img width="1080" height="1440" alt="1" src="https://github.com/user-attachments/assets/189c53bc-c0f4-4284-a25a-56bb999edbeb" />
 <img width="1080" height="1440" alt="2" src="https://github.com/user-attachments/assets/3c797a06-3cec-4988-9101-1f52a78edeed" />
