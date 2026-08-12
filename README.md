@@ -37,7 +37,7 @@
 
 ■ Enjoyers of ships that include incest, adoptive sibling incest, minor/adult pairings, aged up minor characters shipped with a canon adult, adoptive parent and child incest, etc.
 
-■ Pedophiles
+■ Pedophiles ("MAPs" apparently or whatever dumb label they wanna go by)
 
 ■ People who sexualise, glorify, support, tolerate, and/or fetishise abuse of ANY KIND toward ANY PERSON
 
