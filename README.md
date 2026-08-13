@@ -4,7 +4,7 @@
 ## $\color{#7B4BD1}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
 
-✧ °°° ✵ ✧ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) |
+✧ °°° ✵ ✧ | [<img width="128" height="128" alt="kaito_pfp" src="https://github.com/user-attachments/assets/c62adcc5-afd1-4735-b5b7-0ea8be296504" />](https://www.tumblr.com/thatguywin?source=share) |
 [YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) |
 [2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) |
 [STRAWPAGE](https://adowinwin.straw.page/) |
@@ -25,7 +25,7 @@
  
  ## $\color{#D44E4E}{\text{⛧°. ⋆༺ About me!! ༻⋆. °⛧}}$
 
-<img width="128" height="128" alt="kaito_pfp" src="https://github.com/user-attachments/assets/c62adcc5-afd1-4735-b5b7-0ea8be296504" />
+
 <img width="128" height="128" alt="kokichi_pfp" src="https://github.com/user-attachments/assets/71be5050-5174-493a-b02a-db7a7be358de" />
 
 ### $\color{#6256A8}{\text{✧ Win | 17 | Scorpio ఌ︎.˚☾⋆ | ENFP ✧ | he/they usually }}$
