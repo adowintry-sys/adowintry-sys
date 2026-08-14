@@ -1,5 +1,6 @@
 
-<img width="2041" height="568" alt="ytbanner_new_crop" src="https://github.com/user-attachments/assets/ed099abf-e761-41bc-ba90-8844a274e432" />
+<img width="1250" height="625" alt="sketch_francis" src="https://github.com/user-attachments/assets/912d8a0a-ce2b-4fa9-b3fb-1fece715c87a" />
+
 
 ## $\color{#7B4BD1}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
