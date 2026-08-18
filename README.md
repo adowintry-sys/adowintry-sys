@@ -1,5 +1,6 @@
 
-<img width="1250" height="625" alt="sketch_francis" src="https://github.com/user-attachments/assets/912d8a0a-ce2b-4fa9-b3fb-1fece715c87a" />
+<img width="1250" height="625" alt="francis" src="https://github.com/user-attachments/assets/e52dc772-03a6-4b28-a2b6-b12099039b4c" />
+
 
 
 ## $\color{#7B4BD1}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
