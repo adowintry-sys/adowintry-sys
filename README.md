@@ -1,8 +1,7 @@
 
 <img width="1250" height="625" alt="francis" src="https://github.com/user-attachments/assets/e52dc772-03a6-4b28-a2b6-b12099039b4c" />
 
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=512D83&center=true&width=435&lines=Did+anyone+tell+you+how+well+you're+doing%3F;You're+reaching+for+the+stars%2C+buddy!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=69324E&center=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
 
 $\color{#7B4BD1}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
