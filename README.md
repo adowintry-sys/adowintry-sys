@@ -7,7 +7,7 @@
 </p>
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=B50E2C&center=true&vCenter=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=C72A45&center=true&vCenter=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
 
 $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
