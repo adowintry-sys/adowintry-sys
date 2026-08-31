@@ -7,11 +7,11 @@
 </p>
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=7b1e27&center=true&vCenter=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=6E1626&center=true&vCenter=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
 
 $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
-[![Discord](https://img.shields.io/badge/Discord-adowintry-b73a47?style=for-the-badge&logo=discord&logoColor=d7894f&labelColor=7b1e27)](https://discord.com/users/adowintry)
+[![Discord](https://img.shields.io/badge/Discord-adowintry-6E1626?style=for-the-badge&logo=discord&logoColor=d7894f&labelColor=470B12)](https://discord.com/users/adowintry)
 
 ⊹₊˚‧︵‿₊ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) | [YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) | [2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) | [STRAWPAGE](https://adowinwin.straw.page/) | [TIKTOK](https://www.tiktok.com/@adowintry?is_from_webapp=1&sender_device=pc) | [INSTAGRAM](https://www.instagram.com/adowintry?igsh=MTdvMTk1N3E1Z2w2Yg==) |₊‿︵‧˚₊⊹
 
@@ -41,9 +41,9 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
 <div align="left">
      
-### $\color{#6256A8}{\text{✧ Win | 17 | Scorpio ఌ︎.˚☾⋆ | ENFP ✧ so864 | he/they usually }}$
-### $\color{#5462A8}{\text{· Basically a mix of Leon Kuwata, Kaito Momota, and Kiyotaka Ishimaru (from Danganronpa)}}$
-### $\color{#6256A8}{\text{· Artist and animator}}$
+$\color{#6256A8}{\text{✧ Win | 17 | Scorpio ఌ︎.˚☾⋆ | ENFP ✧ so864 | he/they usually }}$
+$\color{#5462A8}{\text{· Basically a mix of Leon Kuwata, Kaito Momota, and Kiyotaka Ishimaru (from Danganronpa)}}$
+$\color{#6256A8}{\text{· Artist and animator}}$
 
 </div>
 
