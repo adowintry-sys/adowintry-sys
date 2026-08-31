@@ -30,7 +30,7 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
 <div align="center">
  
- ## $\color{#D44E4E}{\text{⛧°. ⋆༺ About me!! ༻⋆. °⛧}}$
+ ## $\color{#b73a47}{\text{⛧°. ⋆༺ About me!! ༻⋆. °⛧}}$
 
 
 
@@ -49,7 +49,7 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
 <div align="center">
 
-## $\color{#D44E4E}{\text{DNI}}$
+## $\color{#b73a47}{\text{DNI}}$
 
 </div>
 
@@ -69,6 +69,8 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 ■ People who attack others online for disagreeing on subjective matters
 
 ■ Supporters/tolerators/users of Generative AI technology
+
+<div align="center">
 
 ## $\color{#C25642}{\text{⛧°. ⋆༺ COMMISSIONS !! ༻⋆. °⛧}}$
 <img width="1080" height="1440" alt="1" src="https://github.com/user-attachments/assets/189c53bc-c0f4-4284-a25a-56bb999edbeb" />
