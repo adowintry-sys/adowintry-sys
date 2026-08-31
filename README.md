@@ -42,7 +42,7 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 <div align="left">
      
 $\color{#6256A8}{\text{✧ Win | 17 | Scorpio ఌ︎.˚☾⋆ | ENFP ✧ so864 | he/they usually }}$
-$\color{#5462A8}{\text{· Basically a mix of Leon Kuwata, Kaito Momota, and Kiyotaka Ishimaru (from Danganronpa)}}$
+$\color{#5462A8}{\text{· Kaito Momota+Leon Kuwata+Kiyotaka Ishimaru kin}}$
 $\color{#6256A8}{\text{· Artist and animator}}$
 
 </div>
