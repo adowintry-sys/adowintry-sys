@@ -6,12 +6,14 @@
 $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
 
-✧ °°° ✵ ✧ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) |
+     
+     
+  ⊹₊˚‧︵‿₊ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) |
 [YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) |
 [2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) |
 [STRAWPAGE](https://adowinwin.straw.page/) |
 [TIKTOK](https://www.tiktok.com/@adowintry?is_from_webapp=1&sender_device=pc) |
-[INSTAGRAM](https://www.instagram.com/adowintry?igsh=MTdvMTk1N3E1Z2w2Yg==) | ✧ ✵ °°° ✧
+[INSTAGRAM](https://www.instagram.com/adowintry?igsh=MTdvMTk1N3E1Z2w2Yg==) | ₊‿︵‧˚₊⊹
 
 　*　　　　　　　•　　　•　*°.　　　　　　*　　°　　　　　　　*　　.　
 ✧　.　°.✷　　　　　•　**·✸　　　•✶　　　　　°*°　°　　　.　　　
@@ -60,4 +62,4 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
 ## $\color{#D48B4C}{\text{⛧°. ⋆༺ Placeholder ༻⋆. °⛧}}$
 
-### $\color{#6256A8}{\text{✧ Saving this for a message for a sweet someone... }}$
+### $\color{#6256A8}{\text{✧ Lalallala}}$
