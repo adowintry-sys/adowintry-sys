@@ -1,19 +1,17 @@
-
+<div align="center">
 <img width="1250" height="625" alt="francis_sparkly" src="https://github.com/user-attachments/assets/11dc201a-c03c-48a6-ab4e-79aee5c1ce30" />
 
-<img width="64" height="64" alt="type" src="https://github.com/user-attachments/assets/a1f8d561-3b5c-4a40-b74f-adc5af59286f" /> [![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=B32E56&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
+<p align="center"> 
+<img width="64" height="64" alt="type" src="https://github.com/user-attachments/assets/a1f8d561-3b5c-4a40-b74f-adc5af59286f" /> 
+</p>
+
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=69324E&center=true&vCenter=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
 
 $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
 
-     
-     
-  ⊹₊˚‧︵‿₊ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) |
-[YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) |
-[2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) |
-[STRAWPAGE](https://adowinwin.straw.page/) |
-[TIKTOK](https://www.tiktok.com/@adowintry?is_from_webapp=1&sender_device=pc) |
-[INSTAGRAM](https://www.instagram.com/adowintry?igsh=MTdvMTk1N3E1Z2w2Yg==) | ₊‿︵‧˚₊⊹
+⊹₊˚‧︵‿₊ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) | [YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) | [2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) | [STRAWPAGE](https://adowinwin.straw.page/) | [TIKTOK](https://www.tiktok.com/@adowintry?is_from_webapp=1&sender_device=pc) | [INSTAGRAM](https://www.instagram.com/adowintry?igsh=MTdvMTk1N3E1Z2w2Yg==) |₊‿︵‧˚₊⊹
 
 　*　　　　　　　•　　　•　*°.　　　　　　*　　°　　　　　　　*　　.　
 ✧　.　°.✷　　　　　•　**·✸　　　•✶　　　　　°*°　°　　　.　　　
@@ -26,15 +24,26 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 　　.✷　　　.　✶　⠀⠀⠀⠀⠀⠀⠀°　⠀⠀⠀•✶
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠠⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　　*.　　✷　·　　✯　　　　✶　
 　　　　　　　✧　　•　　°　　　
+</div>
+
+<div align="center">
  
  ## $\color{#D44E4E}{\text{⛧°. ⋆༺ About me!! ༻⋆. °⛧}}$
+
+
 
 <img width="128" height="128" alt="kaito_pfp" src="https://github.com/user-attachments/assets/c62adcc5-afd1-4735-b5b7-0ea8be296504" />
 <img width="128" height="128" alt="kokichi_pfp" src="https://github.com/user-attachments/assets/71be5050-5174-493a-b02a-db7a7be358de" />
 
+</div>
+
+<div align="left">
+     
 ### $\color{#6256A8}{\text{✧ Win | 17 | Scorpio ఌ︎.˚☾⋆ | ENFP ✧ so864 | he/they usually }}$
 ### $\color{#5462A8}{\text{· Basically a mix of Leon Kuwata, Kaito Momota, and Kiyotaka Ishimaru (from Danganronpa)}}$
 ### $\color{#6256A8}{\text{· Artist and animator}}$
+
+</div>
 
 ## $\color{#D44E4E}{\text{DNI}}$
 ■ Supporters/tolerators of incest and pedophilia
