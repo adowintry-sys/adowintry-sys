@@ -1,15 +1,17 @@
 <div align="center">
-<img width="1250" height="625" alt="francis_sparkly" src="https://github.com/user-attachments/assets/11dc201a-c03c-48a6-ab4e-79aee5c1ce30" />
+  
+<img width="1250" height="625" alt="francis_sparkly3" src="https://github.com/user-attachments/assets/78ad160e-9010-4a6f-b094-673b9001120f" />
 
 <p align="center"> 
 <img width="64" height="64" alt="type" src="https://github.com/user-attachments/assets/a1f8d561-3b5c-4a40-b74f-adc5af59286f" /> 
 </p>
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=69324E&center=true&vCenter=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Spectral&pause=500&color=7b1e27&center=true&vCenter=true&width=435&lines=Welcome+to+Win's+lair+++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Make+yourselves+at+home%2C+my+friends+!++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7;Im+so+fucking+tired+lmao++%DB%AA++%D6%B9+%E2%82%8A%CB%9A+%E2%9C%A7)](https://git.io/typing-svg)
 
 $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
+[![Discord](https://img.shields.io/badge/Discord-adowintry-b73a47?style=for-the-badge&logo=discord&logoColor=d7894f&labelColor=7b1e27)](https://discord.com/users/adowintry)
 
 ⊹₊˚‧︵‿₊ | [TUMBLR](https://www.tumblr.com/thatguywin?source=share) | [YOUTUBE](https://www.youtube.com/channel/UCfZiOlTmd6of7JBQx-Jr-9g?sub_confirmation=1) | [2ND YOUTUBE](https://www.youtube.com/channel/UCESMuHnfeelbDHAb2JHyAiw?sub_confirmation=1) | [STRAWPAGE](https://adowinwin.straw.page/) | [TIKTOK](https://www.tiktok.com/@adowintry?is_from_webapp=1&sender_device=pc) | [INSTAGRAM](https://www.instagram.com/adowintry?igsh=MTdvMTk1N3E1Z2w2Yg==) |₊‿︵‧˚₊⊹
 
@@ -45,7 +47,13 @@ $\color{#5B2B82}{\text{⛧°. ⋆༺☾𖤓༻⋆. °⛧}}$
 
 </div>
 
+<div align="center">
+
 ## $\color{#D44E4E}{\text{DNI}}$
+
+</div>
+
+<div align="left">
 ■ Supporters/tolerators of incest and pedophilia
 
 ■ Enjoyers of ships that include incest, adoptive sibling incest, minor/adult pairings, aged up minor characters shipped with a canon adult, adoptive parent and child incest, etc.
