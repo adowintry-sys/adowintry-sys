@@ -1,6 +1,6 @@
 <div align="center">
-  
-<img width="1250" height="625" alt="francis_sparkly3" src="https://github.com/user-attachments/assets/78ad160e-9010-4a6f-b094-673b9001120f" />
+
+<img width="1250" height="625" alt="francis_sparkly4" src="https://github.com/user-attachments/assets/6fa28b82-487f-4ef1-933f-d35a06cbadbb" />
 
 <p align="center"> 
 <img width="64" height="64" alt="type" src="https://github.com/user-attachments/assets/a1f8d561-3b5c-4a40-b74f-adc5af59286f" /> 
